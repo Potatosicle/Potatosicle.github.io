@@ -1,4 +1,4 @@
-https://site.potatosicle.repl.co/
+https://potatosicle.github.io/
 
 Just my site I guess.
 I plan to put more unblocked games on here and possibly proxies.
