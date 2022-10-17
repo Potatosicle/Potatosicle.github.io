@@ -1,4 +1,5 @@
 https://site.potatosicle.repl.co/
 
-just my site ig
-i plan to put more unblocked games on here
+Just my site I guess.
+I plan to put more unblocked games on here and possibly proxies.
+And I'm aware how bad the site looks 😭, I don't plan to fix it 
